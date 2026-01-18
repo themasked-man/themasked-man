@@ -4,3 +4,4 @@
 </p>
 
 <p align="center"> hi </p>
+<p align="center"> i hide freely. if youre normal and we have mutual interests you can always come and talk to me :-) </p>
